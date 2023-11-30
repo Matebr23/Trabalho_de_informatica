@@ -7,11 +7,11 @@ Atualmente moro sozinho
 
 - Oque Gosto de fazer nos seus momentos de lazer?
 - Sair com os amigos
-- Assistir serie
+- Assistir séries
 - Jogar video game
 
   Planos para o futuro:
-  Ter minha casa propria
+  Ter minha casa própria
   Viajar para o exterior
 
   Formação academica:
